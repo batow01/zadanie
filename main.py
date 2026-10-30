@@ -1,1 +1,0 @@
-dlya zadanie
